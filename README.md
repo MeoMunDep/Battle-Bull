@@ -6,4 +6,4 @@
 
 📌 Serious buyers only. Let's keep it professional! 🚀
 
-🌐 [Battle Bulls](https://t.me/battle_games_com_bot/start?startapp=frndId6713068747)
+🌐 [Battle Bulls Link](https://t.me/battle_games_com_bot/start?startapp=frndId6713068747)
